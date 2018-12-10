@@ -1,0 +1,2 @@
+# archivist_trying_to_work_with_filmmakers
+Hi everyone, I am Soojin Park, a graduate student in the Moving Image Archiving and Preservation program at NYU. I just wanted to share a simple guide/essay I wrote to introduce why self-preservation of born-digital contents are important for filmmakers, as well as initial ways you can approach it! It's not the most fun to read but it's no rocket science either. Hope you benefit from this small thing I made, and feel free to correct me/ask anything. Thanks!
